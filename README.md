@@ -1,1 +1,0 @@
-# Sahn-Talam-Restaurant
